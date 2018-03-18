@@ -1,0 +1,2 @@
+# LatihanLinux
+uyeuyeuyeuye
