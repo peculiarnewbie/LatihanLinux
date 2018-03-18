@@ -1,2 +1,7 @@
 # LatihanLinux
-uyeuyeuyeuye
+
+## uyeuyeuyeuye
+
+### izme
+
+
